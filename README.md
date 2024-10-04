@@ -17,7 +17,7 @@
 2 задание: https://wokwi.com/projects/409822144522511361  
 3 задание:   
 4 задание: https://wokwi.com/projects/410688095691171841  
-5 задание:  
+5 задание: https://wokwi.com/projects/410830804516428801  
 6 задание:  
 7 задание:  
 8 задание: https://wokwi.com/projects/410687172394554369  
