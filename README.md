@@ -15,7 +15,7 @@
 # Практика 2
 1 задание: https://wokwi.com/projects/410464764692489217  
 2 задание: https://wokwi.com/projects/409822144522511361  
-3 задание:   
+3 задание: https://wokwi.com/projects/412403817869427713  
 4 задание: https://wokwi.com/projects/410688095691171841  
 5 задание:  
 6 задание:  
