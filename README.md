@@ -1,3 +1,5 @@
+# Лабораторная 2
+https://wokwi.com/projects/419327009239139329  
 # Практика 1
 1 задание: https://wokwi.com/projects/410452180950500353  
 2 задание: https://wokwi.com/projects/410452573510175745  
